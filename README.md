@@ -1,1 +1,1 @@
-# anshuman-econ.github.io
+# ripu.github.io
